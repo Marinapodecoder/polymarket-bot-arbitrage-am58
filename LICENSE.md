@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket automatic Strategy: sentiment-analysis & leverage-trading, the #1 strategy. Includes sentiment-analysis and leverage-trading for a
 
 
 
